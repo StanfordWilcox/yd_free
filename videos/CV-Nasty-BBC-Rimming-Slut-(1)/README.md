@@ -1,0 +1,48 @@
+# CV-Nasty-BBC-Rimming-Slut-(1)
+
+<div align="center">
+  <picture>
+    <img src="https://github.com/StanfordWilcox/yd_free/raw/main/videos/CV-Nasty-BBC-Rimming-Slut-%281%29/thumbnail.jpg" alt="Video Thumbnail" width="400" />
+  </picture>
+</div>
+
+<br>
+
+---
+
+## Video Information
+
+| Property | Value |
+|----------|-------|
+| **Video Name** | `CV-Nasty-BBC-Rimming-Slut-(1)` |
+| **Original Link** | [YouTube Video](https://www.erome.com/a/67UNU7eQ) |
+| **Total Size** | **2 parts** - **155.28 MB** |
+| **Quality** | **best** |
+| **Status** | **Complete (100%)** |
+| **Password Protected** | **NO** |
+
+---
+
+## Download Links
+
+> ⬇️ Download **all parts**, then open `CV-Nasty-BBC-Rimming-Slut-(1).zip` — the other parts are found automatically.
+
+| # | File | Link |
+|---|------|------|
+| 1 | `CV-Nasty-BBC-Rimming-Slut-(1).z01` | [Download](https://github.com/StanfordWilcox/yd_free/raw/main/videos/CV-Nasty-BBC-Rimming-Slut-%281%29/CV-Nasty-BBC-Rimming-Slut-%281%29.z01) |
+| 2 | `CV-Nasty-BBC-Rimming-Slut-(1).zip` | [Download](https://github.com/StanfordWilcox/yd_free/raw/main/videos/CV-Nasty-BBC-Rimming-Slut-%281%29/CV-Nasty-BBC-Rimming-Slut-%281%29.zip) |
+
+---
+
+## How to Extract
+
+Download all parts into the **same folder**, then:
+
+| OS | Steps |
+|----|-------|
+| **Windows** | Double-click `CV-Nasty-BBC-Rimming-Slut-(1).zip` — opens in Explorer, WinRAR, or 7-Zip automatically |
+| **Mac** | Double-click `CV-Nasty-BBC-Rimming-Slut-(1).zip` — extracts with Archive Utility or The Unarchiver |
+| **Linux** | `unzip CV-Nasty-BBC-Rimming-Slut-(1).zip` or right-click → Extract Here (Ark/File Manager) |
+| **Android** | Tap `CV-Nasty-BBC-Rimming-Slut-(1).zip` in your file manager — or use [ZArchiver](https://play.google.com/store/apps/details?id=ru.zdevs.zarchiver) |
+
+---
